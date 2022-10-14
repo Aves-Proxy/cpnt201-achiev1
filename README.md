@@ -9,4 +9,4 @@ Tyger Tyger, burning bright,
 
 In the forests of the night;
 
-poetry is cool cause it's like a song that you don't sing
+What immortal hand or eye,
