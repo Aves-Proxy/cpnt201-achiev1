@@ -10,3 +10,5 @@ Tyger Tyger, burning bright,
 In the forests of the night;
 
 What immortal hand or eye,
+
+party rock is in the house tonight everybody just have a good time
